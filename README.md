@@ -1,0 +1,2 @@
+# linxixi.com
+my blog
